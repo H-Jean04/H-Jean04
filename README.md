@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding.
 - 🌱 I’m currently learning Physic-Chemistry in university.
 - 💞️ I’m looking to collaborate on projet of electronic coding.
-- 📫 How to reach me : jeanhouedougbe@gmail.com ; http//wa.me/22969520937
+- 📫 How to reach me : jeanhouedougbe@gmail.com ; http//wa.me/22969520937 
 - 😄 Pronouns: Jean Dona.
 - ⚡ Fun fact: scientifics games
 
